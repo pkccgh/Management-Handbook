@@ -13,7 +13,7 @@ pets, your car, your family, your hobbies, your weekend, your vacation--anything
 at all.
 
 The second ten minutes are for talking about anything I need to share with you.
-Things I might need from you, an place to share feedback from me or others. This
+Things I might need from you, a place to share feedback from me or others. This
 is a two way conversation to make sure we are aligned.
 
 The last ten minutes are for talking about the future -- your career growth,
